@@ -1,0 +1,1 @@
+# Noter til V1 opkvalificering
